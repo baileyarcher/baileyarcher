@@ -31,4 +31,4 @@ modelling, and case studies.
 ---
 
 ## 📬 Let's connect
-[LinkedIn](https://www.linkedin.com/in/bailey-archer/)) · [Portfolio](https://baileyarcher.com/))
+[LinkedIn](https://www.linkedin.com/in/bailey-archer/) · [Portfolio](https://baileyarcher.com/)
